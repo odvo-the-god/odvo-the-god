@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @odvo-the-god(adwith gupta)
+- 👀 I’m interested in physics maths engineering (mechanical and electrical) guitar piano
+- 🌱 I’m currently learning physics python
+- 💞️ I’m looking to collaborate on my website
+- 📫 How to reach me adwith2904@gmail.com
